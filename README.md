@@ -1,0 +1,1 @@
+Grover Chauhan Consulting Pvt. Ltd. (GC Consulting) is a privately held organization that work in majorly two domains Educational Advisory and Artificial Intelligence based solutions. GC provides cutting edge B2B AI driven software solutions to the leading firms who want to leverage piles of data, sitting in their data repositories, in order to make smart business decisions.
